@@ -3,3 +3,4 @@
 ![Ảnh chụp màn hình 2024-09-25 082635](https://github.com/user-attachments/assets/387e53c3-7784-433d-8968-15a70e82b1e7)
 ![Ảnh chụp màn hình 2024-09-25 082330](https://github.com/user-attachments/assets/984f1c26-a12c-4e10-b451-126f4efd37f8)
 ![Ảnh chụp màn hình 2024-09-25 082019](https://github.com/user-attachments/assets/2adc13b9-0a6f-4ff9-8a1c-6435488a6aa6)
+![Ảnh chụp màn hình 2024-09-28 075052](https://github.com/user-attachments/assets/4ffc7d4b-0be3-4f77-b38b-0add0fdeffc9)
