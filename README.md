@@ -12,6 +12,6 @@
 ![Ảnh chụp màn hình 2024-10-22 000609](https://github.com/user-attachments/assets/9c14bb5d-c1a9-45ef-8bab-2f0f650d9feb)
 ![Ảnh chụp màn hình 2024-10-30 091528](https://github.com/user-attachments/assets/85c36b24-f9a5-4c23-964f-3ae94da29d62)
 ![Ảnh chụp màn hình 2024-11-06 230505](https://github.com/user-attachments/assets/8623482c-37fa-4135-89db-530a360b1b99)
-
-
-
+![Ảnh chụp màn hình 2024-11-20 125808](https://github.com/user-attachments/assets/48ec3755-4e2b-4373-bcfa-1edd53841245)
+![Ảnh chụp màn hình 2024-11-20 125816](https://github.com/user-attachments/assets/ced357ca-5415-48d2-8ea7-b5ea600b8904)
+![Ảnh chụp màn hình 2024-11-20 125846](https://github.com/user-attachments/assets/74f11f87-7e87-4bd1-a74c-4cc4f494fb6d)
